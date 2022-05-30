@@ -8,4 +8,4 @@
 
 🐱 I have a cat, a member of our family.
 
-👏 Welcome to discussing anything interesting and making progress together everyday!
+👏 Welcome to discuss anything interesting and make progress together everyday!
